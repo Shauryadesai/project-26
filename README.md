@@ -1,1 +1,1 @@
-# project-26
+Paneer Butter Masala is one of India’s most popular paneer gravy recipe. This recipe with Indian cottage cheese cubes in a creamy tomato sauce is one that I have been making for a long time. With my video and step-by-step guide you can easily make this restaurant style paneer butter masala at home!
